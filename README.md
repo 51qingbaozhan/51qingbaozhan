@@ -1,10 +1,10 @@
 官网最新地址：（更新时间：2024/07/30）
 
-51情报站 最新官方地址：https://51qbz.cc/
+51情报站 最新官方地址：https://qbz1.com
 
 51情报站 永久地址(需科学上网)：https://51qbz.cc/
 
-51情报站 TG官方群: https://t.me/qbz51
+51情报站 TG官方群：https://t.me/qbz51
 
 
 
@@ -14,7 +14,7 @@
 
 方法2：关注51情报站 twitter：https://x.com/51qingbz
 
-方法3:加入51情报站 telegram公告频道:https://t.me/qbj51
+方法3:加入51情报站 telegram公告频道：https://t.me/qbj51
 
 
 
