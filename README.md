@@ -7,12 +7,15 @@
 51情报站 TG官方群: https://t.me/qbz51
 
 
+
 失联后如何获取最新地址：
+
 方法1：邮箱发送任意邮件至 51情报站 官方邮箱可获取最新地址 牢记官方邮箱：51qingbaoz@gmail.com
 
 方法2：关注51情报站 twitter：https://x.com/51qingbz
 
 方法3:加入51情报站 telegram公告频道:https://t.me/qbj51
+
 
 
 网址打不开？？？
